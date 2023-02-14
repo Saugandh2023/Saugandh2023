@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on job in IT Industry
 - 🤔 I’m looking for help with 
 - 💬 Ask me about My Daily Schedule
-- 📫 How to reach me : Saonawanesaugandh358@gmail.com, [Hey Whatsapp](https://wa.me/918484829221).
+- 📫 How to reach me : Saonawanesaugandh358@gmail.com, [Hey Whatsapp](http://wa.me/918484829221).
 - 😄 Pronouns: Saugandh
 - ⚡ Fun fact: 
 -->
